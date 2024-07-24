@@ -4,7 +4,7 @@
 - 💞️ eu colaboro em colaborar
 - 📫 não entra em contato comigo
 - 😄 matheus
-- ⚡ fã de one piece
+- ⚡ fã de one piece 👒
 
 <!---
 vznkkj021/vznkkj021 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
